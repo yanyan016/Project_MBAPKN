@@ -1,6 +1,6 @@
-# Natasha, Kyle, and Anya WOOOOOOOO
+# Project_MBAPKN
 
-this is our group!! uno in cs uwu  
+this is our group blablabla  
 
 ### Kyle Nasayao
 <img src="Nasayao.jpg" width="30%">  
@@ -10,3 +10,9 @@ hi im kyle and i was a girl in the village doing alright then i became a princes
 
 ### Anya Parreno 1-6-3-2 (Jab-Right uppercut-Left hook-Right hand)  
 <img src="Parreno.jpg" width="30%">  
+
+
+### Natasha Bautista
+<img src ="Bautista.jpeg" width="30%">
+hi im natasha and i broke his heart cause he was nice he was sunshine i was midnight rain he wanted comfortable i wanted that pain he wanted a bride i was making my own name chasing that fame he stayed the same all of me changed like I guess sometimes we all get Just what we wanted, just what we wanted And he never thinks of me Except when I'm on TV I guess sometimes we all get Some kind of haunted, some kind of haunted And I never think of him Except on midnights like this (midnights like this)
+
