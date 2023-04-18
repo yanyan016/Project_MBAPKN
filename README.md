@@ -1,6 +1,7 @@
-# Project_MBAPKN
+# Natasha, Kyle, and Anya <333
 
 cs teachers r the best:)))  
+This is our group:  
 
 ### Kyle Nasayao  
 <img src="Nasayao.jpg" width="30%">  
