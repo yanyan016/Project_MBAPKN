@@ -1,6 +1,6 @@
 # Natasha, Kyle, and Anya WOOOOOOOO
 
-this is our group blablabla  
+this is our group!! uno in cs uwu  
 
 ### Kyle Nasayao
 <img src="Nasayao.jpg" width="30%">  
