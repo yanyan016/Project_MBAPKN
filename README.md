@@ -9,7 +9,7 @@ hi im kyle and i was a girl in the village doing alright then i became a princes
 
 ### Anya Parreno   
 <img src="Parreno.jpg" width="30%">  
-1-6-3-2 (Jab-Right uppercut-Left hook-Right hand)
+1-6-3-2 (Jab-Right uppercut-Left hook-Right hand)  
 
 ### Natasha Bautista  
 <img src ="Bautista.jpeg" width="30%">  
