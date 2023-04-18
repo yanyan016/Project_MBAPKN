@@ -1,6 +1,6 @@
 # Project_MBAPKN
 
-this is our group blablabla  
+cs teachers r the best:)))  
 
 ### Kyle Nasayao  
 <img src="Nasayao.jpg" width="30%">  
