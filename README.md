@@ -6,5 +6,5 @@ hi im kyle and i was a girl in the village doing alright then i became a princes
 
 
 
-Anya Parreno 1-6-3-2 (Jab-Right uppercut-Left hook-Right hand)
+Anya Parreno 1-6-3-2 (Jab-Right uppercut-Left hook-Right hand)  
 <img src="Parreno.jpg" width="30%">  
