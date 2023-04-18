@@ -1,4 +1,4 @@
-# Project_MBAPKN
+# Natasha, Kyle, and Anya WOOOOOOOO
 
 this is our group blablabla  
 
